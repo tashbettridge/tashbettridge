@@ -1,4 +1,4 @@
-## Kia ora 👋 I am Tash, also known as ciph3rwoman 
+## Kia ora 👋 I am Tash, also known as Tash 
 
 
 - 😄 Pronouns: She/Her/Hers
